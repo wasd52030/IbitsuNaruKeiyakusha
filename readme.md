@@ -1,4 +1,4 @@
-# 歪なる契約者/IbitsuNaruKeiyakusha
+# 扭曲的契約者/歪なる契約者/IbitsuNaruKeiyakusha
 
 蠻喜歡的怪物彈珠關卡BGM - 歪なる契約者
 
